@@ -1,0 +1,2 @@
+# myResolotion
+Resolusi saya kedepan
